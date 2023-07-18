@@ -1,1 +1,1 @@
-## Notes
+## Comfy Sloth E-commerce app
